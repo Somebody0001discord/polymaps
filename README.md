@@ -3,7 +3,7 @@
 
 (renamed due to popular request)
 
-**TRY THE [BETA](https://github.com/Somebody0001discord/polymaps/tree/main/Beta%20Channel)!**
+# **TRY THE [BETA](https://github.com/Somebody0001discord/polymaps/tree/main/Beta%20Channel)!**
 
 **you can also ask for your maps to be posted here! (credit will be given)**
 

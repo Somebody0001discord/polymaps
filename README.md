@@ -3,7 +3,10 @@
 
 (renamed due to popular request)
 
+**TRY THE [BETA](https://github.com/Somebody0001discord/polymaps/tree/main/Beta%20Channel)!**
+
 **you can also ask for your maps to be posted here! (credit will be given)**
+
 
 # **HELL REVAMPED POSTED AS HELL ON EARTH!!!**
 also practice jump is posted
